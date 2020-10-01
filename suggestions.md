@@ -13,3 +13,6 @@ I [Abhishek Vishwakarma](https://github.com/Abhishek765) suggests you a playlist
 
 
 I [Sneha](https://github.com/5hre9a) suggests you to Don’t give up early, It may take weeks to get started.
+
+
+I [Atul](https://github.com/5hre9a) suggests you to practice problems, start with easy one then move to medium then hard problems.
